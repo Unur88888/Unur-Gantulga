@@ -6,7 +6,7 @@ During my four years of study in International Business Administration, I have m
 
 Translator (2016-2017)
 
-Translated wide range of documents CHinese to Mongolian 
+Translated wide range of documents Chinese to Mongolian 
 
 Organized work schedule for stuff 
 
