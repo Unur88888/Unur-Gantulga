@@ -1,6 +1,6 @@
 # Personal statement 
 Currently I’m a MBA graduate student at Tunghai University. I pursued my bachelor degree in 2023 at Providence University, Taiwan 
-During my four years of study in International Business Administration, I have maintained an excellent academic record and averaged 85%. As a result of my exposure to foreign national students from other countries during my four years at Providence, I have learned to engage more actively with the world. I am able to adapt, exceed and achieve great heights and expectations with my international business administration degree, as well as use my weaknesses and fears as a driving force for achieving tasks and challenges. The experience of participating in a team project has given me an opportunity to develop my ability to communicate and listen effectively, which has enabled me to demonstrate my abilities to lead and also to show empathy and understanding for my colleagues.
+During my four years of study in International Business Administration, I have maintained an excellent academic record and averaged 85%. As a result of my exposure to foreign national students from other countries during my four years at Providence, I have learned to engage more actively with the world. I am able to adapt, exceed and achieve great heights and expectations with my international business administration degree, as well as use my weaknesses and fears as a driving force for achieving tasks and challenges. 
 
 # Work Experience
 
