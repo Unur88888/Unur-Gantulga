@@ -6,17 +6,17 @@ During my four years of study in International Business Administration, I have m
 
 Translator (2016-2017)
 
-Translated wide range of documents Chinese to Mongolian 
+- Translated wide range of documents Chinese to Mongolian 
 
-Organized work schedule for stuff 
+- Organized work schedule for stuff 
 
-Part time waitress (2020-2022)
+- Part time waitress (2020-2022)
 
 Customer Service 
 
-Performed daliy cleaning duties 
+- Performed daliy cleaning duties 
 
-Setting up tables 
+- Setting up tables 
 
 # Education background 
 
@@ -26,24 +26,24 @@ Language Student at South China Normal University (2017-2018)
 
 # Language skills
 
-Mongolian (Native) 
+- Mongolian (Native) 
 
-English (B2) 
+- English (B2) 
 
-Chinese HSK6 
+- Chinese HSK6 
 
  # Skills 
-Customer Relationship 
+- Customer Relationship 
 
-Adaptibility
+- Adaptibility
 
-Clear communication skills
+- Clear communication skills
 
-Taking responsibility
+- Taking responsibility
 
-Effective listening 
+- Effective listening 
 
-Patience 
+- Patience 
 
-Ability to use positive language 
+- Ability to use positive language 
 
