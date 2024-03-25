@@ -10,9 +10,9 @@ Translator (2016-2017)
 
 - Organized work schedule for stuff 
 
-- Part time waitress (2020-2022)
+Part time waitress (2020-2022)
 
-Customer Service 
+- Customer Service 
 
 - Performed daliy cleaning duties 
 
